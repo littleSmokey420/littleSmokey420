@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @littleSmokey420
+- 👀 I’m interested in  world domonation
